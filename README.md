@@ -1,4 +1,4 @@
-bullshit
+Time saver
 ========
 
-bullshit
+Save your time! Block all social networks. 🤓
